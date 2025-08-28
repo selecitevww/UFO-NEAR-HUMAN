@@ -9,6 +9,7 @@ WAR LIGHT GRANATS IRON FOR "DOTA 2"
 ![UFO1](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/UFO.png)
 ![UFO2](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/123456.png)
 ![UFO3](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/6546546.png)
+lived with me, good friend! ☻☻
 
 NEED STUDY WITH CONTACT HUMAN
   MNEMONICA (LANGUAGE)
@@ -19,9 +20,7 @@ IT IS BAD
 
 SOME BLIND AFTER LIGHT FLASHES
 
-![UFO3](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/123213123123123.png)+
-
-lived with me, good friend! ☻☻
+![UFO3](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/123213123123123.png)
 
 USE 3 KIND MATERIAL LIFE:
   - IS MATERIA (FLAG)
