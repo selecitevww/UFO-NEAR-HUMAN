@@ -45,3 +45,18 @@ CHARACTERISTIC:
   - хочет сотрудничать с людьми так как нуждается в уюте.
   - нуждается в обучение первоначально на языке жестов
   - видит черно белый спектр либо неон
+ВНИМАНИЕ! СТОИТ ОТЛИЧАТЬ ОТ ВИРТАУЛЬНОГО МИРА И ДОПОЛНЕННОЙ РЕАЛЬНОСТИ СО ВСЕМИ ВОЗМОЖНЫМИ "ЗАВОДКАМИ"
+
+HAS 3 TYPES OF ESSENCE:
+- SIMILAR TO MATTER (what is drawn on the flags of countries)
+- lives in the dark has a dark structure translucent, dark spherical structure, not large (protects the house, needs food) - keeper of the house
+- is not observed in the house lives in cemeteries completely invisible, the game is to carry food to a dead person.
+
+CHARACTERISTICS AND DESCRIPTION:
+- Not very fast, understands sign language, lives its own life, helps martyrs and falls to them has a military strategy, needs comfort, warmth and food (not much).
+- there are NKVD methods (repressive methods of special services) of confusion, it is worth learning to distinguish!
+- wants to cooperate with people because it needs comfort.
+- needs training initially in sign language
+- sees a black and white spectrum or neon
+ATTENTION! IT IS WORTH DISTINGUISHING FROM THE VIRTUAL WORLD AND AUGMENTED REALITY WITH ALL THE POSSIBLE "WINDINGS"
+
