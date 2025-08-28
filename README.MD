@@ -19,7 +19,9 @@ IT IS BAD
 
 SOME BLIND AFTER LIGHT FLASHES
 
-![UFO3](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/123213123123123.png)
+![UFO3](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/123213123123123.png)+
+
+lived with me, good friend! ☻☻
 
 USE 3 KIND MATERIAL LIFE:
   - IS MATERIA (FLAG)
