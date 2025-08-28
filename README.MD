@@ -69,3 +69,21 @@ A HUMAN CAN ALSO BE TEACHED TO CANNIBALISM, PERHAPS THERE IS PROPAGANDA ABOUT TH
 
 ЧЕЛОВЕКА К КАННИБАЛИЗМУ ТОЖЕ МОЖНО ПРИУЧИТЬ , МОЖЕТ БЫТЬ ПРОПАГАНДА ПРО ЭТУ СУЩНОСТЬ С ЦЕЛЬЮ ПРОВЕСТИ ОПЫТЫ
 
+
+I found an article where America is experimenting with these entities to obtain new chemical elements.
+
+Their intelligence saw it, I reported it to them.
+
+I am a witness that the article was there, the disk is broken.
+
+This was public information on the Internet.
+
+
+Я нашел статью где америка проводит эксперименты над этими сущностями чтобы получить новые химические элименты.
+
+Ихняя разведка видела, я донес до ведома.
+
+Я свидетель что статья была, диск сломан.
+
+Эта была публичная информация в интернете.
+
