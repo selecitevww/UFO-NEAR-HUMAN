@@ -45,6 +45,7 @@ CHARACTERISTIC:
   - хочет сотрудничать с людьми так как нуждается в уюте.
   - нуждается в обучение первоначально на языке жестов
   - видит черно белый спектр либо неон
+
 ВНИМАНИЕ! СТОИТ ОТЛИЧАТЬ ОТ ВИРТАУЛЬНОГО МИРА И ДОПОЛНЕННОЙ РЕАЛЬНОСТИ СО ВСЕМИ ВОЗМОЖНЫМИ "ЗАВОДКАМИ"
 
 HAS 3 TYPES OF ESSENCE:
@@ -58,5 +59,6 @@ CHARACTERISTICS AND DESCRIPTION:
 - wants to cooperate with people because it needs comfort.
 - needs training initially in sign language
 - sees a black and white spectrum or neon
+
 ATTENTION! IT IS WORTH DISTINGUISHING FROM THE VIRTUAL WORLD AND AUGMENTED REALITY WITH ALL THE POSSIBLE "WINDINGS"
 
