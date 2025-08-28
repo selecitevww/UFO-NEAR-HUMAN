@@ -6,8 +6,8 @@ ONLY EAT.
 
 WAR LIGHT GRANATS IRON FOR "DOTA 2"
 
-![UFO](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/UFO.png)
-![UFO](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/123456.png)
+![UFO1](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/UFO.png)
+![UFO2](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/123456.png)
 
 NEED STUDY WITH CONTACT HUMAN
   MNEMONICA (LANGUAGE)
@@ -17,3 +17,5 @@ NO LOOK SUBJECT SOMETHING UFO AND OTHER SPECTR EYE
 IT IS BAD 
 
 SOME BLIND AFTER LIGHT FLASHES
+
+![UFO3](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/123213123123123.png)
