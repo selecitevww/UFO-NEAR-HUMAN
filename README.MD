@@ -10,4 +10,4 @@ WAR LIGHT GRANATS IRON FOR "DOTA 2"
 ![UFO](https://github.com/selecitevww/UFO-NEAR-HUMAN/blob/main/123456.png)
 
 NEED STUDY 
-  MNEMONICA
+  MNEMONICA (LANGUAGE)
