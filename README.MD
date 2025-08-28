@@ -5,3 +5,4 @@ ONLY EAT.
 - BREAD.
 
 WAR LIGHT GRANATS IRON FOR "DOTA 2"
+![Alt text of the image](https://github.com/username/repository/blob/master/img/octocat.png)
